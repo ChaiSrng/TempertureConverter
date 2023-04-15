@@ -33,8 +33,6 @@ COntact the Author
 
 Contributors names and contact info
 
-Contributors names and contact info
-
 Chaitra Shringa
 https://twitter.com/ChaitraShringa?t=AOlhlJ2OWd3FI9uGiyfv-A&s=09
 
